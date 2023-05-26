@@ -9,7 +9,7 @@
 
 - 📫 How to reach me [LinkedIn](https://www.linkedin.com/in/maneesha-chandel-12b868148/)
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1Ng3IYb9Zuxws07I1EBTuECgXexNUc0ej/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1oUy_iCixOYRCMMhWNdwOh2W0a1uiPtuu/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
